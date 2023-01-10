@@ -1,6 +1,6 @@
 # Hi there 👋
 
-Husband 👩‍❤️‍👨, Father👨‍👧
+Husband 👩‍❤️‍👨, Father👨‍👧  
 Product 📈, Developer 💻
 
 https://mak-sim.ru
